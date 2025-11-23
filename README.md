@@ -5,3 +5,6 @@ for contribution in organizing the nation’s largest HR strategy-based business
 a business case competition - 2023
 
 <img width="720" height="716" alt="image" src="https://github.com/user-attachments/assets/7d7926eb-8f34-46f7-87be-6eaa252457aa" />
+# Certificates
+<img width="751" height="528" alt="Screenshot (174)" src="https://github.com/user-attachments/assets/7d189835-5eb2-447c-8b13-188694b540a8" />
+<img width="1254" height="562" alt="image" src="https://github.com/user-attachments/assets/9593cc78-227f-43d4-a243-6079c701ee61" />
